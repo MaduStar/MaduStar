@@ -8,7 +8,6 @@ Artista visual nas horas vagas, ou quando precisam dos meus desenhos.
 
 **HOBBIES**
   * Desenhar e pintar (diversos estilos)
-  * Treinar (academia)
   * Ouvir música
   * Programar
   * Escrever
